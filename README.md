@@ -7,5 +7,5 @@ _Meu nome é Andriele_
 **▪︎Utilizo por causa das aulas**
 
 
-![]()![image](https://github.com/Andriele-c-o/Andriele-c-o/assets/144145362/8acb892e-bd3d-4bb0-a2bf-8d63b177e395)
+https://media.tenor.com/HP6KEvmZG-0AAAAi/laughing-hysterically.gif
 
