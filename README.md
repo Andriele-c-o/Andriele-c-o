@@ -2,7 +2,7 @@ _**Bem vinda(o)**_ 🌙
 
 _Meu nome é Andriele_
 
-● Sou estudante de 1 ano.
+● Sou estudante do 2 ano do ensino médio.
 
 **▪︎Utilizo por causa das aulas**
 
